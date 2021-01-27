@@ -1,4 +1,4 @@
-# Dodo-Radioactive
+# Radioactive Dodo
  Cyborg cyborg Dodo is very faulty and needs to be improved...
  
  Co by si Dodo přálo:  
